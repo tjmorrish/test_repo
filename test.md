@@ -1,5 +1,4 @@
-Mountains and Hills in the UK
+Mountains in the UK
 ===================
-Engerland is not very mountainous.
-But has some tall hills, and maybe a
-mountain or two depending on your definition. This is a test.
+England is not very mountainous.
+But has some tall hills, and maybe a mountain or two depending on your definition.
